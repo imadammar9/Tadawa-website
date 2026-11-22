@@ -76,4 +76,4 @@ Recent stops include the German Jordanian University and the Jordan Engineers As
 
 A 2025 study of 9.16 million visits to Jordan's public emergency departments found that 62% were low-acuity and 93% of patients were treated and sent home. Tadawa's model is designed to divert exactly that volume to primary care.
 
-Universities, associations and employers interested in hosting a medical day can contact Tadawa through tadawa.com. Tadawa now serves more than 6,000 registered users and has delivered more than 3,500 consultations by video, in clinic and at home.
+Universities, associations and employers interested in hosting a medical day can contact Tadawa through tadawa.com. Tadawa now serves more than 6,000 registered users and has conducted more than 4,000 visits by video, in clinic and at home.
